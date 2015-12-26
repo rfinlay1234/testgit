@@ -23,3 +23,10 @@ If you like kebabs, stews, and anything about middle eastern and Mediterranean f
 (212) 696-0300
 ravaghmidtown.com
 
+Masa -Sushi
+The best but most expensive restaurant I have ever been to.
+10 Columbus Circle 4th Floor New York, NY 10019 US
++01 212 823 9807
+masanyc.com
+
+
